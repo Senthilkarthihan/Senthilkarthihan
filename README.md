@@ -30,5 +30,5 @@
 ---
 
 ### 📬 Let’s Connect
-[LinkedIn](https://www.linkedin.com/in/senthilkarthihan/) | [Email](mailto:srajakarthihan@hawk.iit.edu)
+[LinkedIn](https://www.linkedin.com/in/senthilkarthihan/) | [Email](mailto:karthihansenthil@gmail.com)
 
